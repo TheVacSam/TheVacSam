@@ -3,4 +3,4 @@ You can always check my projects.
 
 Follow me on Linkedin (in development).
 
-CC&REDES
+
